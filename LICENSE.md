@@ -1,4 +1,4 @@
-
+kaizen new Scripts offers the most advanced kaizen Script, with speed and auto-farm. Perfect for dominating any match.
 
 
 
